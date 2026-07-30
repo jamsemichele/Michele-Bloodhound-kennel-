@@ -1,1 +1,1 @@
-# Michele-Bloodhound-kennel-Official website for Michele Bloodhound Kennel. A premium Bloodhound breeder website featuring available puppies, gallery, customer inquiries, WhatsApp contact, and an admin dashboard. Established in 2019.
+# Michele-Bloodhound-kennel
